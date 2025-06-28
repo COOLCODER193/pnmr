@@ -11,3 +11,11 @@ this will now make the roleplay ai into a normal ai  really cool
 
 
 happy turning roleplay ai's to normal ai's I guess lol
+
+
+
+
+
+
+
+#ai #c.ai #roleplay #roleplayai
